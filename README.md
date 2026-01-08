@@ -1,4 +1,4 @@
-# Electronics & Spy Cam Detector – Privacy Policy
+Privacy Policy
 
 Electronics & Spy Cam Detector does not collect, store, or share personal data.
 
