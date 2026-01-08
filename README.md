@@ -15,4 +15,4 @@ No data is shared with third parties.
 
 ## Contact
 For questions about privacy, contact:
-support@example.com
+Feedback.E.detect@gmail.com
